@@ -10,4 +10,4 @@ Matthew Bailey Resume
 ## Hobboies
 -Gaming
 -Camping
--Playing Football
+-Member of the McIntosh Football Team
