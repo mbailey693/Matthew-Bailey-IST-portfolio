@@ -7,7 +7,7 @@
 - Moving Furniture
 - Mowing Lawns
 - Painting Houses
-## Hobboies
+## Hobbies
 - Gaming
 - Camping
 - Member of the McIntosh Football Team
