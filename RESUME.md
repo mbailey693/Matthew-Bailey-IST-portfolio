@@ -11,3 +11,8 @@
 - Gaming
 - Camping
 - Member of the McIntosh Football Team
+
+## Typing
+- Keys Learned
+- J, F, Space 
+ 
